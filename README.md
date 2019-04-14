@@ -1,2 +1,0 @@
-# xiaomimi
-描述
